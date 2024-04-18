@@ -1,4 +1,4 @@
-# Cv Magaly Gonzalez Hernandez
+# Cv Magaly Gonzalez Hernandez 
 
 ## *Estudiante de Ingenieria en tecnologias y sistemas de información*
 
